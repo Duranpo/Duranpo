@@ -1,4 +1,4 @@
-## Hi, Im Crisddev 👋
+## Hi, Im Duranpo 👋
 
 <!--
 ### 👋 About Me
